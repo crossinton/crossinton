@@ -12,5 +12,7 @@
 </a>　　✩
 <p align="center"> 𝐚𝐥𝐰𝐚𝐲𝐬 w2i unless stated 𝐨𝐭𝐡𝐞𝐫𝐰𝐢𝐬𝐞
 
+<p align="center"><img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31ewfgkw636gbfassnmqvzyjluvm&cover_image=true&theme=compact&show_offline=false&background_color=121212&interchange=false" width="150"><img src="https://64.media.tumblr.com/044cc1e041d4788c9e822c9b56839cd0/22d32dfdaad56546-f4/s1280x1920/2f5df1d4e69540a678c5c485ded892117cfb153f.pnj" width="200">
+
 <p align="center"><img src="https://64.media.tumblr.com/aa2d61b36d4c1d430c9f89306637d269/22d32dfdaad56546-ef/s1280x1920/b236b030e6701d038e41f2f3ae71e247ed4722bd.pnj" width="600">
 <p align="center"><img src="https://64.media.tumblr.com/8c909c8a4338d2792249801cf57bc083/22d32dfdaad56546-3b/s500x750/88cb9ec91f6ac200a0c7d1c7f1a4b2c5d155e90c.pnj" width="600">
