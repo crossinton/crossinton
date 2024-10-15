@@ -8,7 +8,7 @@
 <p align="center">𝐜𝐫𝐨𝐬𝐬⠀ 𓆩⟡𓆪⠀ charlie
 <p align="center"><img src="https://64.media.tumblr.com/7f00ee215f36c133dcb8a258bf428bef/22d32dfdaad56546-61/s1280x1920/9a9efcf90539dda53ff6090a0f43f4105a86127e.gifv" width="440">
 
-<p align="center">   ✩　　<a href="https://crossinton.atabook.org">atabook</a>　　　　<a href="https://retrospring.net/crossinton">𝐫𝐞𝐭𝐫𝐨𝐬𝐩𝐫𝐢𝐧𝐠</a>　　　　<a href="rentry.co/coorslite">rentry</a>　　　　<a href="guns.lol/crossinton">𝗴𝘂𝗻𝘀.𝗹𝗼𝗹
+<p align="center">   ✩　　<a href="https://crossinton.atabook.org">atabook</a>　　　　<a href="https://retrospring.net/crossinton">𝐫𝐞𝐭𝐫𝐨𝐬𝐩𝐫𝐢𝐧𝐠</a>　　　　<a href="https://rentry.co/coorslite">rentry</a>　　　　<a href="https://guns.lol/crossinton">𝗴𝘂𝗻𝘀.𝗹𝗼𝗹
 </a>　　✩
 <p align="center"> 𝐚𝐥𝐰𝐚𝐲𝐬 w2i unless stated 𝐨𝐭𝐡𝐞𝐫𝐰𝐢𝐬𝐞
 
