@@ -1,3 +1,5 @@
+# RE-DOING MY GITHUB GIVE ME A BREAAKKKK
+
 # ![](https://komarev.com/ghpvc/?username=crossinton&label=PROFILE+VIEWS&color=252525)
 
    [rentry](rentry.co/coorslite) - [atabook](https://crossinton.atabook.org) - [retrospring](https://retrospring.net/@crossinton) - [links](https://guns.lol/crossinton) 
