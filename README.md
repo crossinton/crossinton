@@ -3,7 +3,7 @@
 
 <p align="center"><img src="https://komarev.com/ghpvc/?username=crossinton&color=b2d3e5" width="150">
 
-<p align="center"> 𝘺𝘰𝘶'𝘳𝘦⠀ basically⠀ half ᴀ curse 𝗮𝗹𝗿𝗲𝗮𝗱𝘆 . ⠀
+<p align="center"> 𝘺𝘰𝘶'𝘳𝘦⠀ basically⠀ half⠀ ᴀ⠀ curse⠀ 𝗮𝗹𝗿𝗲𝗮𝗱𝘆 . ⠀
 
 <p align="center">𝐜𝐫𝐨𝐬𝐬⠀ 𓆩⟡𓆪⠀ charlie
 <p align="center"><img src="https://64.media.tumblr.com/7f00ee215f36c133dcb8a258bf428bef/22d32dfdaad56546-61/s1280x1920/9a9efcf90539dda53ff6090a0f43f4105a86127e.gifv" width="440">
