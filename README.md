@@ -4,7 +4,7 @@
 <p align="center">i⠀ 𝘵𝘳𝘪𝘦𝘥⠀.⠀ in⠀ 𝘵𝘩𝘦⠀ 𝗲𝗻𝗱⠀ . . . i⠀ 𝐝𝐢𝐝 . ︶  ➣ 𝐜𝐫𝐨𝐬𝐬⠀ /⠀ charlie
 <p align="center"><img src="https://i.pinimg.com/736x/ea/e2/4d/eae24dfe00cd63eebfd36c54244dc9c7.jpg" width="440">
 
-<p align="center">   ✩　　<a href="https://crossinton.atabook.org">atabook</a>　　　　<a href="https://retrospring.net/crossinton">𝐫𝐞𝐭𝐫𝐨𝐬𝐩𝐫𝐢𝐧𝐠</a>　　　　<a href="https://rentry.co/crossinton">rentry</a>　　　　<a href="https://guns.lol/crossinton">𝗴𝘂𝗻𝘀.𝗹𝗼𝗹
+<p align="center">   ✩　　<a href="https://crossinton.atabook.org">atabook</a>　　　　<a href="https://rentry.co/crossinton">rentry</a>　　　　<a href="https://guns.lol/crossinton">𝗴𝘂𝗻𝘀.𝗹𝗼𝗹
 </a>　　✩
 <p align="center"> 𝐚𝐥𝐰𝐚𝐲𝐬 w2i unless stated 𝐨𝐭𝐡𝐞𝐫𝐰𝐢𝐬𝐞
   
