@@ -2,7 +2,7 @@
 
 
 <h4 align="center">
-<img src="https://file.garden/ZyPr2TtO7TTyC9op/crossinton%20gh/cross%20png" width="400">
+<img src="https://files.catbox.moe/2urbcj.png" width="400">
 
 </h4>
 
