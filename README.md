@@ -1,16 +1,12 @@
-<h4 align="center"><img src="https://komarev.com/ghpvc/?username=crossinton&color=414852&label=✩" height="20">
+<div align="center">
 
 
-<h4 align="center">
-<img src="https://files.catbox.moe/plv5i7.png" width="400">
+![](https://komarev.com/ghpvc/?username=crossinton&color=745075&label=🤠&style=plastic)
 
-</h4>
 
-<h4 align="center">
-  
-[rentry](https://rentry.co/crossinton)ㅤㅤㅤㅤㅤ ㅤ[guns.lol](https://guns.lol/crossinton)ㅤㅤㅤㅤㅤ ㅤ[atabook](https://crossinton.atabook.org)ㅤㅤㅤㅤㅤ ㅤ[strawpage](https://thecowpoke.straw.page)
+<p align="center"> <img width="390" src="https://cdn.discordapp.com/attachments/1135850926729609228/1398088778043752448/gh2_crossinton.png?ex=68841723&is=6882c5a3&hm=4a82c5659edd34b368fa4588112ecac869f6f471585f54466904e15642c94023&"/>
 
-<img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31ewfgkw636gbfassnmqvzyjluvm&cover_image=true&theme=natemoo-re&show_offline=false&background_color=787894&interchange=false&bar_color=b2afd9&bar_color_cover=false" width="300">
 
-</h4> 
-</p>
+
+[RENTRY](https://rentry.co/crossinton)ㅤ⟡
+ㅤ[ATABOOK](https://crossinton.atabook.org/)ㅤ⟡ㅤ[GUNS.LOL](https://guns.lol/crossinton)ㅤ⟡ㅤ[STRAWPAGE](https://thecowpoke.straw.page/)ㅤ
